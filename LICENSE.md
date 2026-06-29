@@ -1,4 +1,4 @@
-#  
+#  king legacy Scripts stealth offers the most advanced king legacy Script, with speed and god mode. Perfect for dominating any match.
 
 
 
